@@ -1,0 +1,1 @@
+Proletariusze wszystkich krajów, łączcie się! 
